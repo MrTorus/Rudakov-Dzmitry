@@ -1,6 +1,6 @@
 # Rudakov Dzmitry  
 
-![Alt text](https://vk.com/rudakovyshka?z=photo41355552_456240376%2Fphotos41355552)  
+![Alt text]()  
 
 |   My   	| Contacts                	|
 |:------:	|-------------------------	|
